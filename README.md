@@ -32,5 +32,5 @@
 잘 작동되지 않거나 오류가 있을 경우 연락바랍니다.  
 또한 인공지능 수학 지도를 위해 필요한 자료가 있으시면 요청바랍니다.  
 hwanys2@naver.com  
-https://teacher.pe.kr
+https://foreducator.com
  
